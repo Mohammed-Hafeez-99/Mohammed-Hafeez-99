@@ -1,5 +1,4 @@
 <h6>==> https://roadmap.sh/u/mohammedfu</h6>
-linkedin-
 <h6>==>https://www.linkedin.com/in/m-h-z-87370b33b?utm_source=share&utm_campaign=share_via&utm_content=profile&utm_medium=android_app </h6>
 
 
